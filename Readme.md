@@ -1,0 +1,1 @@
+Discord'da arkadaşlık isteği atmak için synox#2014.
